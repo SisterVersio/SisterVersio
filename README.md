@@ -1,1 +1,1 @@
-📫 Discord - vabbes#5654
+📫 Discord - vabbes
